@@ -1,3 +1,4 @@
+Synergy is key! Reach me through email (y)
 ![path](https://user-images.githubusercontent.com/24433014/197402476-7d1dee1f-7a7f-48c5-8977-b14f5053d38c.jpg)
 
 <!---
